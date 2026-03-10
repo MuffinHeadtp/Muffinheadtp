@@ -1,3 +1,2 @@
-<img width="1378" height="716" alt="Image" src="https://github.com/user-attachments/assets/ae12f17b-a01b-4ca6-938f-2452d82bed95" />
-⠀⠀⠀⠀⠀⠀w2i always . IWC! . TAKEN
-<img width="1378" height="431" alt="Image" src="https://github.com/user-attachments/assets/1b9a8133-0c9d-45b0-8ad7-9574c07cbff9" />
+<img width="1378" height="716" alt="Image" src="https://github.com/user-attachments/assets/769e94dc-59cb-49f3-b0dd-37030e74e070" />
+<img width="1370" height="427" alt="Image" src="https://github.com/user-attachments/assets/859d0030-014c-49ec-b48f-25921327507e" />
