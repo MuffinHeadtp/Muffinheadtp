@@ -1,2 +1,3 @@
 <img width="1378" height="716" alt="Image" src="https://github.com/user-attachments/assets/74530298-be4c-4a6c-b2f8-2ee37b9cb6ad" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Monospaces&pause=1000&color=8E715F&width=435&lines=%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%22+Coins+stealer.+.+%22;%22+%E3%81%82%E3%81%AA%E3%81%9F%E3%81%AB%E4%BC%9A%E3%81%86%E3%81%9F%E3%81%B3%E3%81%AB%E7%A7%81%E3%81%AE%E4%B8%80%E6%97%A5%E3%81%AF%E6%82%AA%E5%8C%96%E3%81%97%E3%81%BE%E3%81%99%E3%80%82%22" alt="Typing SVG" /></a>
 <img width="1370" height="427" alt="Image" src="https://github.com/user-attachments/assets/0fd9b054-7857-4cd0-a927-76749b8fa012" />
